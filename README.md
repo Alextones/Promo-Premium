@@ -1,4 +1,4 @@
-# Promo1
+# Promo
 Promo video for all
 Create promo video for your brand
 Companies using Promo in Production
